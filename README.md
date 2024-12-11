@@ -3,7 +3,7 @@
 
 - 📫 How to reach me **thallapureddypujithareddy@gmail.com**
 
-<h3 align="left">Connect with me:</h3>
+<h3 align="left">Connect with me: https://www.linkedin.com/in/thallapu-reddy-pujitha-reddy-3698bb1b1/</h3>
 <p align="left">
 </p>
 
